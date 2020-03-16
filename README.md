@@ -1,0 +1,2 @@
+# owned
+ı am student 
